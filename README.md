@@ -1,8 +1,5 @@
 # Chapter116-Vectorized-Moral-Pressure-
 
-了解しました。
-以下に Chapter116「Vectorized Moral Pressure（ベクトル化された倫理圧力）」 を全文構造で展開いたします。
-
 ⸻
 
 Chapter116: Vectorized Moral Pressure（ベクトル化された倫理圧力）
